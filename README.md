@@ -3,6 +3,12 @@
 <img width="640" height="101" alt="image" src="https://github.com/user-attachments/assets/424b8db9-bb43-4817-893a-a14ef7553302" />
 
 </div>
+<br/>
+<div align="center">
+  
+  ![](https://komarev.com/ghpvc/?username=ryIandgracee&color=665d86&style=flat&label=expendables)
+
+</div>
 <div align="center">
 
 im mentally ill about phm and bloodymary
