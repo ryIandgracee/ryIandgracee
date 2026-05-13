@@ -19,6 +19,7 @@ im mentally ill about phm and bloodymary
 <img width="640" height="492" alt="image" src="https://github.com/user-attachments/assets/b45406b6-2738-427c-b7ca-e959aaaff727" />
 
 </div>
+<br/>
 <div align="center">
 
 [rentry](https://rentry.co/projectbloodymary) . [ata](https://bloodymary.atabook.org)
