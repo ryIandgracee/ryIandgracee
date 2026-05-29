@@ -27,7 +27,7 @@ im mentally ill about phm and bloodymary
 </div>
 <div align="center">
 
-if you ship rocky x grace kindly fuck off thank u
+if you ship rocky x grace kindly fuck off thank u. strattland is ok u guys r cool
 
 </div>
 <div align="center">
